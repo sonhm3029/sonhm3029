@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hoangminhson29102001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1cQ7WVyzhQkCsZ03GyJucoFA__fIz5jbG/view?usp=sharing](Hoang Minh Son CV)
+- 📄 Know about my experiences [Hoang Minh Son CV](https://drive.google.com/file/d/1cQ7WVyzhQkCsZ03GyJucoFA__fIz5jbG/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
